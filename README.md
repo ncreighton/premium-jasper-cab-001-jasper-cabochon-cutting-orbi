@@ -1,0 +1,2 @@
+# premium-jasper-cab-001-jasper-cabochon-cutting-orbi
+Struggling to get those mesmerizing orbs to pop in your jasper cabochons? The difference between a flat, lifeless stone and a stunning piece of art is knowing exactly where and how to cut — and this Hub gives you that insider knowledge.  Most lapidary guides treat all jasper the same, but orbicular varieties demand a unique approach. This Hub provi
